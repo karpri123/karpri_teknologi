@@ -1,0 +1,1 @@
+# karpri_teknologi
